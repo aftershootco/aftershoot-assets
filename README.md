@@ -1,0 +1,1 @@
+# aftershoot-assets
